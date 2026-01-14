@@ -24,6 +24,4 @@ Aqui está o **resumo analítico da vaga** com base nas suas respostas:
 ## 🔎 Análise Final
 A vaga de **Product Owner Júnior** busca alguém em início de carreira, mas com potencial para assumir responsabilidades de liderança e gestão. O foco em **metodologias ágeis** mostra que a empresa valoriza processos estruturados e adaptáveis. O destaque para **soft skills de liderança e gestão** sugere que, além de conhecimento técnico, o papel exige forte capacidade de relacionamento e influência, preparando o profissional para evoluir rapidamente em senioridade.
 
----
 
-Quer que eu complemente este resumo com **recomendações práticas** para atrair candidatos ideais (por exemplo, pontos de destaque em anúncios ou entrevistas)?
